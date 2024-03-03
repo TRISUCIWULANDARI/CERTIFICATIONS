@@ -1,0 +1,1 @@
+https://github.com/TRISUCIWULANDARI/CERTIFICATIONS/blob/main/DATA_SCIENCE.pdf
